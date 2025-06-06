@@ -1,1 +1,1 @@
-# Revista-6to-B
+# Revista6to-B
